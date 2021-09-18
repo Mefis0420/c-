@@ -1,1 +1,1 @@
-# c- starałem się..
+ starałem się..
